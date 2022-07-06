@@ -1,2 +1,4 @@
-- 👋 Hi, I’m @EstefaniAntunes
+- Oi sou a EstefaniAntunes
 -Tenho 15 anos 
+-Estou no 1° ano do ensino medio 
+-Espero aprender muitas coisas 
